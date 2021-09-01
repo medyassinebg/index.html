@@ -1,1 +1,1 @@
-# index.html
+#MYB OLD DOMAIN - AUTO REDIRECT&OLD UI
